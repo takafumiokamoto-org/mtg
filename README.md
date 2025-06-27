@@ -15,3 +15,5 @@ https://us06web.zoom.us/j/84654885295?pwd=nrzj5y4mEBQT7or5rbqJHfEuwa7nkG.1
 [VLI7GxS&PL*ly+/s](https://us06web.zoom.us/j/89280873907?pwd=VbMvC54Y9JUFdFq5Dy13rhy25w7Ama.1#success)
 
 https://us06web.zoom.us/j/89280873907?pwd=VbMvC54Y9JUFdFq5Dy13rhy25w7Ama.1
+
+https://us06web.zoom.us/j/84654885295?pwd=nrzj5y4mEBQT7or5rbqJHfEuwa7nkG.1
