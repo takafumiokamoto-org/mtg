@@ -19,3 +19,5 @@ https://us06web.zoom.us/j/89280873907?pwd=VbMvC54Y9JUFdFq5Dy13rhy25w7Ama.1
 https://us06web.zoom.us/j/84654885295?pwd=nrzj5y4mEBQT7or5rbqJHfEuwa7nkG.1
 
 https://us06web.zoom.us/j/87947320377?pwd=hGL3axaynqZrMzKdIJa2bxKsU55DxN.1
+
+https://us04web.zoom.us/j/9586457322?pwd=YkNZWVhsZld6d0tnRTkxQkVUK0NNdz09
