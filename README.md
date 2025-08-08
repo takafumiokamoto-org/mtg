@@ -23,3 +23,8 @@ https://us06web.zoom.us/j/87947320377?pwd=hGL3axaynqZrMzKdIJa2bxKsU55DxN.1
 https://us04web.zoom.us/j/9586457322?pwd=YkNZWVhsZld6d0tnRTkxQkVUK0NNdz09
 
 https://us04web.zoom.us/j/9586457322?pwd=YkNZWVhsZld6d0tnRTkxQkVUK0NNdz09
+
+
+https://us06web.zoom.us/j/81770028103?pwd=dXahMRhLcNac1HuI4cA15jBmXVf055.1
+ミーティング ID： 817 7002 8103
+パスコード： n@@5V^40 
