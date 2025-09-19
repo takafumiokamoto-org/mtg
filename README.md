@@ -11,3 +11,4 @@ https://us04web.zoom.us/j/9586457322?pwd=YkNZWVhsZld6d0tnRTkxQkVUK0NNdz09
 https://us06web.zoom.us/j/81770028103?pwd=dXahMRhLcNac1HuI4cA15jBmXVf055.1
 
 https://us06web.zoom.us/j/92083185036?pwd=enlLbWtiSEJrZ29nOC9teFNuRldqQT09
+https://us06web.zoom.us/j/81770028103?pwd=dXahMRhLcNac1HuI4cA15jBmXVf055.1
